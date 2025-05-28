@@ -1,6 +1,6 @@
 # BDA-Analytics-Crew
 
-**Final Project Presentation: link here **
+**Final Project Presentation: https://www.canva.com/design/DAGownvMN2Q/KyFBP_XmD4uBFmhoNQ4bCA/view?utm_content=DAGownvMN2Q&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=haad2d70996 **
 
 
 
